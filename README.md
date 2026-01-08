@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **at.khan.2434@gmail.com**
 
-- ⚡ Fun fact: **I love gatcha.**
+- ⚡ Fun fact: **I love gacha.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
